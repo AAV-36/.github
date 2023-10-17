@@ -34,7 +34,7 @@ Here are some fun facts about AAV’36:
 
 - AAV’36 was founded in 1936 and is one of the oldest athletics clubs in the Netherlands.
 - AAV’36 has more than 800 members of all ages and levels.
-- AAV’36 has a modern synthetic track with eight lanes and facilities for all disciplines.
+- AAV’36 has a modern synthetic track with six lanes and facilities for all disciplines.
 - AAV’36 organizes the De Knikker Zegerplasloop three times a year, which is a popular running event around the Zegerplas lake.
 - AAV’36 has produced several national champions and record holders in various categories and events.
 
